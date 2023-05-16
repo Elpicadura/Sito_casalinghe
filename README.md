@@ -1,2 +1,0 @@
-# Sito_casalinghe
-Casalinghe
